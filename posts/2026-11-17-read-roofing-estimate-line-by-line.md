@@ -1,0 +1,3 @@
+# How to Read a Roofing Estimate Line by Line
+
+A roofing estimate is not one number — it is a list, and the list is where the truth lives. Read it line by line: tear-off and disposal, underlayment, shingles or other material, flashing around chimneys and valleys, ventilation, and the warranty terms. If a line says "allowance" instead of a fixed price, ask what happens when the allowance runs out. If flashing or ventilation is missing entirely, the low price is not a bargain — it is an incomplete job. Two estimates for the same roof can differ by thousands of dollars and both be honest; the difference is usually in what each one includes. Never sign an estimate you have not read to the last line. See how roof costs break down in Houston: https://epicroofingtx.com
