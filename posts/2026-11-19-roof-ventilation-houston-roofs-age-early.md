@@ -1,0 +1,5 @@
+# Roof Ventilation in Houston: The Hidden Reason Roofs Age Early
+
+Most Houston homeowners never think about roof ventilation - until the roof ages years before it should. A roof needs air moving under it: cool air in through the soffits, hot air out through the ridge or vents. When that airflow is blocked, heat builds up in the attic and cooks the shingles from below, drying them out and curling their edges years early. The same trapped heat drives up cooling bills and feeds moisture that rots the decking. The signs are easy to miss: an attic that feels like an oven in summer, shingles curling from the middle of the roof rather than the edges, and damp spots on the underside of the decking. Ventilation is not a luxury upgrade - it is part of how long a roof lasts in Houston heat. A roof checked once a year after storm season lasts longer than a roof nobody looks at until it leaks. Epic Roofing TX serves Houston homeowners - call (281) 326-9905.
+
+See how roof costs break down in Houston: https://epicroofingtx.com
