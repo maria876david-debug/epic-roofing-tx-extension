@@ -1,0 +1,5 @@
+# Houston Hail Damage: How to Tell If Your Roof Needs a Claim or Just a Repair
+
+After a hailstorm, every Houston homeowner faces the same question: is this an insurance claim or a repair I pay for myself? Start with what you can see from the ground: missing or lifted shingles, dents on gutters and downspouts, and granules washing into the gutters or piling at the downspout outlets. Then look in the attic for daylight through the decking or fresh water stains - those mean the damage has gone through, not just across the surface. Small, scattered damage on an older roof is usually a repair; widespread bruising across the whole slope, especially on a roof under ten years old, is worth a professional inspection before you call the insurer. One caution: do not sign anything from a door-knocking contractor before an independent inspection - a storm brings out the best roofers and the worst ones in the same week. Epic Roofing TX serves Houston homeowners - call (281) 326-9905.
+
+See how roof costs break down in Houston: https://epicroofingtx.com
